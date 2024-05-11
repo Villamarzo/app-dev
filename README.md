@@ -35,4 +35,5 @@ Loki and Sylvie are greeted by TVA’s Miss Minutes (Tara Strong) into He Who Re
 Loki ends with him returning to a Ravonna-less TVA ruled by one of He Who Remains’ variants. Mobius and Hunter B-15 are scrambling to contain the timelines and don’t seem to remember Loki when he meets with them. The scope of Loki’s first season opens up a whole new world while honoring the Loki that died at the hands of Thanos, and making this version an instantaneously likable and empathic one. Though the multiple cliffhangers make it feel a bit incomplete, thankfully it's finally back to answer as many questions as its six episodes allow.
 
 **SYPNOSIS**
+
 Loki Season 2 picks up in the aftermath of the shocking season finale when Loki finds himself in a battle for the soul of the Time Variance Authority. Along with Mobius, Hunter B-15, and a team of new and returning characters, Loki navigates an ever-expanding and increasingly dangerous Multiverse in search of Sylvie, Judge Renslayer, Miss Minutes, and the truth of what it means to possess free will and glorious purpose.
