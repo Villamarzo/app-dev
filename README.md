@@ -2,9 +2,8 @@
 **My first repository** 
 
 ## LOKI
-**SEASON**
+**SEASON 1**
 
-2 SEASONS
 
 **EPISODES**
 
@@ -18,6 +17,7 @@ In Marvel Studios’ “Loki,” the mercurial villain Loki (Tom Hiddleston) res
 ![LOKI POSTER](https://media.comicbook.com/2021/05/loki-poster-1267988.jpeg?auto=webp&width=1080&height=1350&crop=1080:1350,smart)
 
 **Story**
+
 Lokiplunges the audience right into the action, borrowing the 2012 time heist scene from Avengers: Endgame to keep things clear about who this Loki is. He’s a variant who just tried to conquer Earth after the Battle of New York, who also manages to get ahold of the Tesseract and use it to escape to Mongolia, only for him to be trailed and arrested by agents from the Time Variance Agency. They reset that alternate timeline to its right course and take him to their headquarters – where anomalies that step out of the course of the Sacred Timeline (a.k.a. variants) are judged and/or pruned (a.k.a. disintegrated.)
 
 In the TVA, Gugu Mbatha-Raw’s Ravonna Renslayer tries to judge Loki, but Owen Wilson’s Mobius saves him to use him to track a variant with sinister plans. Loki goes through a crash course on how his story was supposed to go, learning he’s responsible for Frigga’s (Rene Russo) death and how Thanos (Josh Brolin) kills him just after Ragnarok. Pairing this with seeing how the TVA agents use Infinity Stones as paperweights changes Loki’s perception of significance, and he decides to help Mobius – who reveals the variant they’re chasing is one of Loki himself.
@@ -34,6 +34,16 @@ Loki and Sylvie are greeted by TVA’s Miss Minutes (Tara Strong) into He Who Re
 
 Loki ends with him returning to a Ravonna-less TVA ruled by one of He Who Remains’ variants. Mobius and Hunter B-15 are scrambling to contain the timelines and don’t seem to remember Loki when he meets with them. The scope of Loki’s first season opens up a whole new world while honoring the Loki that died at the hands of Thanos, and making this version an instantaneously likable and empathic one. Though the multiple cliffhangers make it feel a bit incomplete, thankfully it's finally back to answer as many questions as its six episodes allow.
 
+**SEASON 2**
+
+
+**EPISODES**
+
+6
+
 **SYPNOSIS**
 
 Loki Season 2 picks up in the aftermath of the shocking season finale when Loki finds himself in a battle for the soul of the Time Variance Authority. Along with Mobius, Hunter B-15, and a team of new and returning characters, Loki navigates an ever-expanding and increasingly dangerous Multiverse in search of Sylvie, Judge Renslayer, Miss Minutes, and the truth of what it means to possess free will and glorious purpose.
+
+**LOKI POSTER**
+
