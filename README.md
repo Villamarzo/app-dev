@@ -45,7 +45,7 @@ Loki ends with him returning to a Ravonna-less TVA ruled by one of He Who Remain
 Loki Season 2 picks up in the aftermath of the shocking season finale when Loki finds himself in a battle for the soul of the Time Variance Authority. Along with Mobius, Hunter B-15, and a team of new and returning characters, Loki navigates an ever-expanding and increasingly dangerous Multiverse in search of Sylvie, Judge Renslayer, Miss Minutes, and the truth of what it means to possess free will and glorious purpose.
 
 **LOKI POSTER**
-![LOKI S2](https://eztv.yt/shows/293695/loki/)
+![LOKI S2](https://parade.com/.image/t_share/MjAwNjE0MTg4NzI3NDc3MzU2/loki-season-2.jpg)
 
 **STORY**
 
