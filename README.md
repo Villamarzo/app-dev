@@ -46,6 +46,7 @@ Loki ends with him returning to a Ravonna-less TVA ruled by one of He Who Remain
 Loki Season 2 picks up in the aftermath of the shocking season finale when Loki finds himself in a battle for the soul of the Time Variance Authority. Along with Mobius, Hunter B-15, and a team of new and returning characters, Loki navigates an ever-expanding and increasingly dangerous Multiverse in search of Sylvie, Judge Renslayer, Miss Minutes, and the truth of what it means to possess free will and glorious purpose.
 
 **LOKI POSTER**
+
 ![LOKI S2](https://parade.com/.image/t_share/MjAwNjE0MTg4NzI3NDc3MzU2/loki-season-2.jpg)
 
 **STORY**
@@ -84,7 +85,7 @@ Doctor Strange teams up with a mysterious teenage girl who can travel across mul
 
 **Doctor Strange in the Multiverse of Madness Poster**
 
-![DS:MM](https://www.imdb.com/title/tt9419884/mediaviewer/rm339811841/?ref_=tt_ov_i)
+![DS:MM](https://mlpnk72yciwc.i.optimole.com/cqhiHLc.WqA8~2eefa/w:auto/h:auto/q:75/https://bleedingcool.com/wp-content/uploads/2022/04/FPn5XwMVgAE8v2x.jpeg)
 
 **STORY**
 
