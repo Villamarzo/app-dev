@@ -8,11 +8,12 @@
 
 6
 
-**SYPNOSIS**
+**SYNOPSIS**
 
 In Marvel Studios’ “Loki,” the mercurial villain Loki (Tom Hiddleston) resumes his role as the God of Mischief in a new series that takes place after the events of “Avengers: Endgame.”
 
 **LOKI POSTER**
+
 ![LOKI POSTER](https://media.comicbook.com/2021/05/loki-poster-1267988.jpeg?auto=webp&width=1080&height=1350&crop=1080:1350,smart)
 
 **Story**
@@ -40,7 +41,7 @@ Loki ends with him returning to a Ravonna-less TVA ruled by one of He Who Remain
 
 6
 
-**SYPNOSIS**
+**SYNOPSIS**
 
 Loki Season 2 picks up in the aftermath of the shocking season finale when Loki finds himself in a battle for the soul of the Time Variance Authority. Along with Mobius, Hunter B-15, and a team of new and returning characters, Loki navigates an ever-expanding and increasingly dangerous Multiverse in search of Sylvie, Judge Renslayer, Miss Minutes, and the truth of what it means to possess free will and glorious purpose.
 
@@ -74,3 +75,33 @@ The ending of Loki Season 2 sees Loki deciding to sacrifice his future and embra
 Loki travels back to the point just before Sylvie kills He Who Remains, and no matter what he does to stop Sylvie from killing He Who Remains, Loki fails. Loki learns that the Temporal Loom is a failsafe, and its job is to automatically purge all the branches except for the Sacred Timeline in the event of an overload. He Who Remains also mentions Loki’s time-slipping was engineered by him so Loki can show up and kill Sylvie.
 
 Loki goes back to when he first met Mobius to learn that Mobius couldn’t get himself to kill a variant kid, and Renslayer did the job instead. I’m unsure who this variant kid is; please comment below if anyone knows. Loki also goes back to talk to Sylvie and explain to her the predicament he’s facing. Sylvie says all the timelines need a fighting chance, and their destruction shouldn’t be one person’s decision.
+
+#### Doctor Strange in the Multiverse of Madness
+
+**SYNOPSIS**
+
+Doctor Strange teams up with a mysterious teenage girl who can travel across multiverses, to battle other-universe versions of himself which threaten to wipe out the multiverse. They seek help from the Scarlet Witch, Wong and others.
+
+**Doctor Strange in the Multiverse of Madness Poster**
+
+![DS:MM](https://www.imdb.com/title/tt9419884/mediaviewer/rm339811841/?ref_=tt_ov_i)
+
+**STORY**
+
+America Chavez (Xochitl Gomez) (A teenager who has the ability to travel between dimensions by punching open doorways) and a version of Stephen Strange (Benedict Cumberbatch) (A neurosurgeon who became a Master of the Mystic Arts following a career-ending car accident) are chased by a demon in the space between universes while searching for the Book of Vishanti. That Strange is killed and Chavez accidentally creates a portal that transports herself and Strange's corpse to Earth-616, where that universe's version of Strange rescues Chavez from another demon with help from the Sorcerer Supreme, Wong (Benedict Wong) (The Sorcerer Supreme of Earth-616 and Strange's mentor and friend). Chavez explains that the beings are hunting her because she has the power to travel through the multiverse. She cant control her powers and it manifests only when she is really frightened. Chavez says that the other Strange reached the book of Vishanti (which would give him the powers to defeat the demon), but that's when the Demon caught up with them and killed Strange. Chavez shows them the dead Strange's corpse as proof.
+
+Recognizing witchcraft runes, Strange consults Wanda Maximoff (Elizabeth Olsen) (A former Avenger gone rogue who can harness chaos magic, engage in telepathy and telekinesis, and alter reality) for help but realizes that she is responsible for the attacks. After acquiring the Darkhold (the book of the damned that corrupts everyone) and becoming the Scarlet Witch, Maximoff believes that controlling Chavez's powers will allow her to reunite (by travelling to a different Universe, where they are still alive) with Billy (Julian Hilliard) and Tommy (Jett Klyne), the children she created during her time in Westview.
+
+Maximoff gives an ultimatum to surrender Chavez by sundown. When Strange refuses to surrender Chavez, Maximoff attacks Kamar-Taj, killing many sorcerers. Under stress, Chavez accidentally transports herself and Strange to Earth-838 (from where she cant go back as she cant control her powers. CHavez herself doesn't have a counterpart in any other universe) while Maximoff uses the Darkhold to "dream-walk" (Projecting her consciousness into her alternate from any other Universe), taking control of her Earth-838 counterpart, who lives a suburban life with her own Billy and Tommy. A surviving sorceress sacrifices herself to destroy the Darkhold and break the dream-walk. Enraged, Maximoff forces Wong to lead her to Mount Wundagore, the source of the Darkhold's power, to reestablish the dream-walk. There Maximoff realizes that Wundagore is a throne that has been waiting for her arrival. She was meant to rule all the multiverses.
+
+While searching for help, Strange and Chavez are apprehended by Earth-838's Sorcerer Supreme, Karl Mordo (Chiwetel Ejiofor) (In this Universe Strange died trying to protect the Earth from Thanos), and brought before the Illuminati, a group consisting of Mordo, Peggy Carter / Captain Carter (Hayley Atwell), Blackagar Boltagon / Black Bolt (Anson Mount), Maria Rambeau / Captain Marvel (Lashana Lynch), Reed Richards (John Krasinski) (A member of the Fantastic 4), and Charles Xavier (Patrick Stewart). They explain that through reckless use of their universe's Darkhold in an attempt to defeat Thanos, Earth-838's Strange triggered a universe-destroying "incursion" (when boundaries between 2 universes are blurred, they collide, destroying one of both of the universes). After defeating Thanos (They found the book of Vishanti and used its powers to kill Thanos), the Illuminati executed their Strange to prevent him from causing more harm.
+
+Mordo believes that Earth-616's Strange is similarly dangerous, but Maximoff reestablishes her dream-walk at Mount Wundagore and arrives in her Earth-838 counterpart's body before they can pass judgment. She kills all of the Illuminati except Mordo, whom Strange subdues before fleeing with Chavez. The two escape with help from the Earth-838 counterpart of Strange's ex-fiance, Christine Palmer (Rachel McAdams) (An emergency surgeon who was a colleague and lover of Strange), a scientist working with the Illuminati. Before dying Xavier had told Strange that 838 had the book of Vishanti. Strange convinces Palmer to take him to the way-point that leads to the book of Vishanti.
+
+Strange, Chavez and Palmer enter the space between universes to find the Book of Vishanti, which is the antithesis to the Darkhold, but Maximoff appears and destroys it. She then takes over Chavez's mind, using her powers to send the others to an incursion-destroyed universe. She also uses Chavez to send her back to Earth 616, where Maximoff disconnects the dream-walk with her 838 self.
+
+Strange defeats the destroyed universe's Strange, who has been corrupted by his universe's Darkhold, and uses it to dream-walk into the body of his deceased counterpart on Earth-616. With Wong's help, Strange saves Chavez from Maximoff as she tries to take Chavez's powers, and encourages Chavez to use her abilities. She transports Maximoff to Earth-838, where she sees Billy and Tommy recoil from her (the Wanda 616 who was in SCarlett witch headgear) in fear while crying for their real mother (whom Wanda 616 tossed aside when she entered the 616 universe). Realizing the error of her ways, Maximoff-616 relents and uses her powers to bring down Mount Wundagore, simultaneously destroying all copies of the Darkhold throughout the multiverse and apparently sacrificing herself in the process. Chavez returns Strange and Palmer to their respective universes.
+
+Sometime later, Kamar-Taj is repaired and the surviving sorcerers, joined by Chavez, continue training. Strange develops a third eye as a result of using the Darkhold and dream-walking into a corpse.
+
+In a mid-credits scene: Strange is approached by a sorceress who warns him that his actions have triggered an incursion that he must help fix. Strange follows her into the Dark Dimension.
